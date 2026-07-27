@@ -1,1 +1,1 @@
-# Ampas_Dark_System.e9s8pl97
+Github Ini Telah Diawasi Oleh Dark System Jika Ingin Melepas Nya Maka Join Ch @yatimitu123
